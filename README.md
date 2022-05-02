@@ -1,0 +1,3 @@
+- Olá, euSou Guilherme tenho 17 anos 
+- Gosto muito tecnologia e esportes gosto muito videogames e Futebol
+- 
